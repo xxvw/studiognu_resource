@@ -25,10 +25,11 @@ Twitter: @zqowl (Discordから飛べます)
 
 #### 3 eSports / ゲーム  
 eSports Team AVALON Gaming 総括.  
-ゲーム:  
-- VALORANT  
-- Apex Legends  
-- Overwatch 2  
+ゲーム(主にいつも触っているもの):  
+- VALORANT(イモータル3)  
+- Apex Legends(マスター)  
+- Overwatch 2(サポ：ダイヤ)  
+- League of Legends(ブロンズ4 <-弱い！ｗ)  
 
 #### 4 ライブスタッフ  
 歌い手グループ専属でライブスタッフをやってます  
